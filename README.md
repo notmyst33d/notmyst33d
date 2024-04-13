@@ -1,2 +1,1 @@
-# Rainy :)
-<img style="width: 100000px; height: 10000px;" src="https://raw.githubusercontent.com/notmyst33d/felinia-reader/main/rainy.png">
+<img width="200px" src="fire.gif"><img width="400px" src="welcome.png"><img width="200px" src="fire.gif">
