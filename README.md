@@ -1,4 +1,5 @@
-<img width="200px" src="fire.gif"><img width="400px" src="welcome.png"><img width="200px" src="fire.gif">
+<img width="200px" src="fire.gif"><img width="400px" src="welcome.png"><img width="200px" src="fire.gif"><br>
+<img src="cringe.png">
 ## Who am i
 Im Myst33d and im 19, i live in Russia, Omsk. Also, im not a furry.
 
