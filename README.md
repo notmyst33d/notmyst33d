@@ -1,7 +1,7 @@
 <img width="200px" src="fire.gif"><img width="400px" src="welcome.png"><img width="200px" src="fire.gif">
 ## What i do
 * I drive <img src="ryan.png" height="32px">
-* Software development
+* Software development(backend, frontend, gamedev)
 * Digital art
 * Music things
 
