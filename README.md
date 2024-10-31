@@ -14,6 +14,7 @@ music things
 definitely not furry stuff <img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/thumbs_down_paw.svg" height="24px"><img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/thumbs_down_paw.svg" height="24px"><img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/thumbs_down_paw.svg" height="24px"><img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/no.svg" height="24px"><img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/no.svg" height="24px"><img src="https://raw.githubusercontent.com/notmyst33d/emoji/refs/heads/main/no.svg" height="24px">
 
 ### look at my cool fursona
+# NO DONT LOOK ITS OUTDATED >:(((((
 <img src="fursoma.jpg">
 
 ### what i like
@@ -33,6 +34,16 @@ stinky
 my stupid health condition  
 alzheimers  
 alzheimers
+
+### i like vidyagam
+dmc or devil may cry idk devils dont cry in that game  
+undertale  
+deltarune (undertale 2)  
+clone hero (guitar hero 4)  
+project revolve  
+everhood  
+dota 2  
+pizza tower
 
 ###### peppino
 
