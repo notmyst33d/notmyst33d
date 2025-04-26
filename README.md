@@ -1,4 +1,4 @@
-[Skip this brainrot](#contact-me)
+# [Skip this brainrot](#contact-me)
 
 <img src="js.jpg">
 
